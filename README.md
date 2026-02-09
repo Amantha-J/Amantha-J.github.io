@@ -13,7 +13,7 @@ I like playing video games in my free time, I tend to stay twords indie things b
 Reading/Writing-\
 My friend recommended the locked tomb to me and I've been having a blast with it, on top of that I've really taken to creative writing as a stress relief tool. 
 
-## Fun Things:\
+## Fun Things:
 I love random websites so much you have no idea\
 
 [Orb Farm]([url](https://orb.farm/))\
