@@ -24,7 +24,7 @@ Draw a horse and watch it run. **DO IT**
 
 ## Other Things:
 
-![A screenshot of the main character from Signalis](https://github.com/Amantha-J/Amantha-J.github.io/blob/main/ElsterSad4.png)/
+![A screenshot of the main character from Signalis](https://github.com/Amantha-J/Amantha-J.github.io/blob/main/ElsterSad4.png)\
 I'm not comfortable putting a picture of my face on the internet with my name attached on a public page. So here is a screenshot from my hard drive to show I know how/
 This is from Signalis(2022) btw, very good game. Highly reccomend if you can take some tragedy and horror.
 
