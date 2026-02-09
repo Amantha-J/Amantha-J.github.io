@@ -26,7 +26,7 @@ Draw a horse and watch it run. **DO IT**
 
 
 <img width="453" height="459" alt="ElsterSad4" src="https://github.com/user-attachments/assets/69c6fb8f-c43b-4d1a-a76e-68fca0f4a686" />\
-I'm not comfortable putting a picture of my face on the internet with my name attached on a public page. So here is a screenshot from my hard drive to show I know how.\
+I'm not comfortable putting a picture of my face on the internet with my name attached on a public page. So here is a screenshot from my hard drive to demonstrate that I can.\
 This is from Signalis(2022) btw, very good game. Highly reccomend if you can take some tragedy and horror.
 
 
