@@ -8,7 +8,7 @@
 ## Intrests:
 
 Video Games-\
-I like playing video games in my free time, I tend to stay towords indie things because I think they're pushing the artform more then AAA studios. Some of my favorte games are Hollow Knignt, Celeste, Unbeatable, and ULTRAKILL.
+I like playing video games in my free time, I tend to stay towards indie things because I think they're pushing the artform more then AAA studios. Some of my favorte games are Hollow Knignt, Celeste, Unbeatable, and ULTRAKILL.
 
 Reading/Writing-\
 My friend recommended 'The Locked Tomb' to me and I've been having a blast with it, on top of that I've really taken to creative writing as a stress relief tool. 
